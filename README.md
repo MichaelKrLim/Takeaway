@@ -1,3 +1,3 @@
-** The Solution To All of Your Takeaway Needs**
+**The Solution To All of Your Takeaway Needs**
 
 enjoy!
